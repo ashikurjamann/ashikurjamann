@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ashikurjamann, I'm a Bangladeshi Musician, Composer, Entrepreneur, Influencer, and Content Creator. I'm also a good writer. I'm CEO of Digital Media Bangladesh.
+- 👋 Hi, I’m @ashikurjamann, I'm a Musical Artist, Musician, Composer, Entrepreneur, Influencer, and Content Creator. I'm also a good writer. I'm CEO of Digital Media Bangladesh.
 - 👀 I’m interested in Making Music.
 - 🌱 I’m currently learning to making music.
 - 💞️ I’m looking to collaborateing music.
